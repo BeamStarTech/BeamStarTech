@@ -3,4 +3,4 @@
 - 📫 How to reach me: Discord - astar76 or my unrestricted server: https://discord.gg/Xye9xXxhEc
 - 😄 Pronouns: He/Him They/Them
 - ⚡ Fun fact: I am a YouTuber - https://www.youtube.com/@BeamStarTech Or just BeamStarTech
-- 📁 I have a Internet Archive - https://archive.org/search?query=creator%3A"BeamStarTech"
+- 📁 I have a Internet Archive - https://archive.org/details/@jacob_ward632
