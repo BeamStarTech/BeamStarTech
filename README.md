@@ -4,3 +4,4 @@
 - 😄 Pronouns: He/Him They/Them
 - ⚡ Fun fact: I am a YouTuber - https://www.youtube.com/@BeamStarTech Or just BeamStarTech
 - 📁 I have a Internet Archive - https://archive.org/details/@jacob_ward632
+**If a file is missing check my internet archive GitHub has a 25MB limit**
